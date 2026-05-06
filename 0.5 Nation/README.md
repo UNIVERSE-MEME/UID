@@ -1,4 +1,4 @@
-Meaning & Ritual
+Bridge & Representation
 
-Care for shared meaning and culture. Steward rituals, symbols,
-and emotional resonance that sustain coherence.
+Care for coordination across regions and groups.
+Represent and connect communities with accountable leadership.
